@@ -85,6 +85,7 @@ interests:
 ### 💬 Contact
 
 *Discord : AirMontreal*
+
 *Email : sixmodzemail@gmail.com*
 
 <br>
